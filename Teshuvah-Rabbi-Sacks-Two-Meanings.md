@@ -197,39 +197,26 @@ Bottom line ; G-d created the Universe for love and forgiveness. More than we ha
 Never lose faith in the faith of G-d in us, may we all have the privilege of returning to G-d and have G-d return to us.
 
 
+=================
+
+Talmudic system / Jewish Law to Common Law
 
 
+https://www.myjewishlearning.com/article/talmud-is-not-a-code-of-law/
 
+https://pdfs.semanticscholar.org/58d5/27b4313f61c78c3afde307cdbd5135984df6.pdf
 
+https://www.jstor.org/stable/25654323?seq=1#page_scan_tab_contents
 
+http://www.jewishencyclopedia.com/articles/14216-talmudic-law
 
+http://www.myjli.com/dilemma/index.php/2017/02/02/an-overview-of-the-common-law-and-talmudic-approaches-to-lost-mislaid-and-abandoned-property/
 
+https://www.tabletmag.com/jewish-news-and-politics/41654/law-practice
 
+https://mosaicmagazine.com/essay/uncategorized/2013/12/what-is-this-thing-called-law/
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+https://digitalcommons.osgoode.yorku.ca/cgi/viewcontent.cgi?referer=https://www.google.com/&httpsredir=1&article=2055&context=ohlj
 
 
 
