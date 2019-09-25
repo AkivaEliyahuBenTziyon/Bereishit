@@ -120,6 +120,92 @@ Moses said: G-d I need you to be close to the People
 
 A place to meet: the Mikdash
 
+A religious leader who will always be there: kohen & leader kohen gadol
+
+Yom Kippur will be the day when the priest wins attonement for the people
+
+G-d takes religious leadership from charismatic to bureaucratic
+
+Max Weber: the routinization of charisma ...
+
+How do you take peak experience and translate them in daily doen to earth experiences
+
+Which is why Shuvah has the entirely different elements
+
+Duality of priest and prophets- but then the land, the temple, the priests, the prophets are gone
+
+No subsequent prophets after the Second Temple period
+
+What do the Rabbi do
+
+Everything single Jew has to become a priest and a prophet
+
+Yom ha kippurim - apriestly world
+
+But the prophet spoke lashuv - the period is haseret yumje teshuvah
+
+we do the vidui but it has two different forms
+
+the other form is ahoret - sins between humans - relationship is the concern of the prophet
+
+priestly vs prophetic confession
+
+Haftorah for Yom Kippur Isahiah Chapter 58 ... share you food with the hungry
+
+Minchah reading: Jonah, sent to the gentiles - Syrian
+
+Jonah says 5 words and immediately everyone does Shuvah
+
+Into the most priestly of days are introduced strong prophetic acts
+
+Two roles are being brought together: as a priest and as a prophet, mend the relationship with G-d and with human beings
+
+Slichot: derives from the time Moses prayed to hashem for the sin of the Golden Calf
+
+G-d said : salachti ... slichot prophetic voice
+
+shavnu begavnu ... priestly voice
+
+what empowered the Rabbis to do that?
+
+Took it as a means to democratize holiness
+
+Because the rabbis listened and heard 2 sentences
+
+Shemot chapter 19 verse 6: Moses propose a deal to people
+
+mamlachet kohanim ve goy kadosh - a kingdom of priest and a holy nation
+
+When Moses was having a bad day - Shemot Chaper 11: 70 elders and the 2 elders left out Eldad and Medad
+
+Then Josuah said to Moses shut them up
+
+Moses: are you jealous on my behalf? Would they all G-d people be prophet?
+
+The rabbi found the moment to fullfil the prophecy in the period betwween that Temple destructions and the Holocaust 
+
+rabbi democraticized and elevated everyone to a priest securing attonement and a prophet mending broken relationship
+
+Everyone says slichot
+
+A Sage can sometimes be even greater than a prophet
+
+The Sages tried to preserve the element of Judaism and elevated it
+
+Bottom line ; G-d created the Universe for love and forgiveness. More than we have faith in G-d, G-d has faith in us.
+
+Never lose faith in the faith of G-d in us, may we all have the privilege of returning to G-d and have G-d return to us.
+
+
+
+
+
+
+
+
+
+
+
 
 
 
